@@ -1,2 +1,5 @@
-# legendino-dinosaur-battle-cheat-coupon-codes
-Legendino Dinosaur Battle Cheat coupon Codes free Gems Hacks guide
+# Legendino Dinosaur Battle Cheat coupon Codes free Gems Hacks guide
+
+Legendino Dinosaur Battle Cheat coupon Codes free Gems Hacks guide - If you notice that the attacker has a high charge number, it will be very useful if you can respond with a defense + defense combination. It can help you completely escape the attack so that you can get away. However, the two defense skills may not apply to you, so you should look for other options, such as attack + defense or just weak defense options. The game rewards correct predictions. For example, suppose you expect your enemy to attack in the next round, so you use the anti combo skill, which enables you to defend and counterattack. If this scene is performed in real life, you will get a soul reward of 1 point for your accurate hypothesis. legendino dinosaur battle codes 2021-2022 If you have this idea, you must always pay attention to the enemy's soul and know what you can do next. Don't use these skills casually, because legendino will become hard soon, so if you don't rely on reliable strategies, you may lose game after game in the arena.
+
+<a href="https://watermod.icu/legendino-dinosaur-battle/">go here</a>
